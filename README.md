@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @rachel-john
+- 👀 I’m interested in electrical and electronic Engineering
+- 🌱 I’m currently learning Queen Mary's University London
